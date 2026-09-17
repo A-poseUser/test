@@ -1,1 +1,1 @@
-Я даун
+Hail machine god
