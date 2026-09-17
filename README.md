@@ -1,1 +1,1 @@
-Hail machine god
+Hail Machine God
