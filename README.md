@@ -1,1 +1,2 @@
-Hail Machine God
+Hail Machine 
+я жирдяй
